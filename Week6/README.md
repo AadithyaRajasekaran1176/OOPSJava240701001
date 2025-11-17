@@ -1,0 +1,6 @@
+[week 6 1.pdf](https://github.com/user-attachments/files/23585983/week.6.1.pdf)
+[week 6 mcq.pdf](https://github.com/user-attachments/files/23585981/week.6.mcq.pdf)
+[week 6 5.pdf](https://github.com/user-attachments/files/23585980/week.6.5.pdf)
+[week 6 4.pdf](https://github.com/user-attachments/files/23585979/week.6.4.pdf)
+[week 6 3.pdf](https://github.com/user-attachments/files/23585977/week.6.3.pdf)
+[week 6 2.pdf](https://github.com/user-attachments/files/23585976/week.6.2.pdf)
