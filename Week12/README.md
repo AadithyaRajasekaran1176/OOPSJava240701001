@@ -1,0 +1,5 @@
+[week 12 3.pdf](https://github.com/user-attachments/files/23586169/week.12.3.pdf)
+[week 12 2.pdf](https://github.com/user-attachments/files/23586168/week.12.2.pdf)
+[week 12 1.pdf](https://github.com/user-attachments/files/23586167/week.12.1.pdf)
+[week 12 mcq.pdf](https://github.com/user-attachments/files/23586166/week.12.mcq.pdf)
+[week 12 4.pdf](https://github.com/user-attachments/files/23586165/week.12.4.pdf)
