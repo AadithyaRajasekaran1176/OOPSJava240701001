@@ -1,0 +1,6 @@
+[week 8 2.pdf](https://github.com/user-attachments/files/23586083/week.8.2.pdf)
+[week 8 1.pdf](https://github.com/user-attachments/files/23586082/week.8.1.pdf)
+[week 8 mcq.pdf](https://github.com/user-attachments/files/23586081/week.8.mcq.pdf)
+[week 8 5.pdf](https://github.com/user-attachments/files/23586074/week.8.5.pdf)
+[week 8 4.pdf](https://github.com/user-attachments/files/23586073/week.8.4.pdf)
+[week 8 3.pdf](https://github.com/user-attachments/files/23586072/week.8.3.pdf)
